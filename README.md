@@ -1,1 +1,1 @@
-# notes
+Note taking :) 
